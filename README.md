@@ -1,0 +1,1 @@
+# Ethical Spending Manifesto
